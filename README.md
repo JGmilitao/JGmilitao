@@ -12,4 +12,4 @@ Meu nome é João Gabriel
 
 
 
-![](https://tenor.com/pt-BR/view/luffy-one-piece-luffy-one-piece-one-piece-luffy-monkey-d-luffy-gif-9574721925059496020)
+![](https://tenor.com/pt-BR/view/naruto-gif-19427546)
