@@ -12,4 +12,4 @@ Meu nome é João Gabriel
 
 
 
-![](https://tenor.com/pt-BR/view/naruto-gif-19427546)
+![](https://tenor.com/pt-BR/view/luffyfakesmile-gif-23893845)
